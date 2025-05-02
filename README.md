@@ -1,0 +1,2 @@
+# gimpogwagigocchang
+gimpogwagigosaranghaeyo
